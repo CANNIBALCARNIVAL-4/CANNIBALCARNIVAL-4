@@ -23,3 +23,5 @@ TAKE A MOTHERFUCKING BITE!
 ᵃⁿ ᵃᵖᵖˡᵉ ᵃ ᵈᵃʸ ᵏᵉᵉᵖˢ ᵗʰᵉ ᵈᵒᶜᵗᵒʳ ᵃʷᵃʸ.
 
 <img width="200" height="200" alt="bfb-bfdi" src="https://github.com/user-attachments/assets/8a930bd2-e4c9-4d8b-aae6-2c9407a4ddb1" />
+
+$$ \color{gold}{\text{i'd like to thank myself for teaching me how to edit ts, since NO ONE ELSE DID.}} $$
