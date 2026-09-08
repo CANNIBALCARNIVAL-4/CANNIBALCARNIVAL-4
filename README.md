@@ -8,7 +8,7 @@ im an agender chilean(<img width="20" height="20" alt="cl" src="https://github.c
 
 this is still a HEAVY WIP!!
 
-[rory says: tutu should perish in agonizing pain]
+$\color{red}{\text{[rory says: tutu should perish in agonizing pain.]}}$
 
 ʷʰᵉⁿ ᵗʰᵉ ᵈᵃʸˢ ᵍᵉᵗ ᵗʰᵒᵘᵍʰ
 
