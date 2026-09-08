@@ -16,6 +16,7 @@ $\color{red}{\text{[rory says: tutu should perish in agonizing pain.]}}$
 ᵃⁿᵈ ʸᵒᵘʳ ᵐᵒⁿᵉʸ ʳᵘⁿ ᵒᵘᵗ
 ᵗʰᵉʳᵉˢ ᵃ ʳᵉᵈ ʳᵒᵘⁿᵈ ᵗʰᶦⁿᵍ
 ᵗʰᵃᵗ ʷᶦˡˡ ᵐᵃᵏᵉ ᶦᵗ ᵃˡʳᶦᵍʰᵗ
+
 take a bite, take a bite
 TAKE A MOTHERFUCKING BITE!
 ᵃⁿ ᵃᵖᵖˡᵉ ᵃ ᵈᵃʸ ᵏᵉᵉᵖˢ ᵗʰᵉ ᵈᵒᶜᵗᵒʳ ᵃʷᵃʸ.
