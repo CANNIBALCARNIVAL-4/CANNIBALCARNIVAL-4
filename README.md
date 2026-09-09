@@ -4,7 +4,7 @@
 
 
 my name is cannibal(carnival) or as the bakery locals call me, fork.
-im an agender<img width="50" height="30" alt="pride-pride-flag" src="https://github.com/user-attachments/assets/c6d2249f-512f-4ae3-8c84-f2b2cbb3892c" />
+im an agender (<img width="50" height="30" alt="pride-pride-flag" src="https://github.com/user-attachments/assets/c6d2249f-512f-4ae3-8c84-f2b2cbb3892c" />)
  chilean(<img width="20" height="20" alt="cl" src="https://github.com/user-attachments/assets/9d0ab301-1c42-45ee-b3dc-49f85ff9b75b" /> ) thing, i love bfdi, rainworld, and mewgenics, but i rarely int with these fandoms (or any fndm in general)
 
 𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆
@@ -16,7 +16,7 @@ im an agender<img width="50" height="30" alt="pride-pride-flag" src="https://git
 as you can see by the gifs, im a four ---> <img width="100" height="50" alt="fortune-cookie-four-bfb" src="https://github.com/user-attachments/assets/a5fd4562-0b70-42bb-b9a1-7c8b9304b2eb" />
  fictkin, but theres other characters that i really identify with!
 
-<img width="100" height="140" alt="images (13)" src="https://github.com/user-attachments/assets/8ba5c990-5b09-484d-a685-3fc4fe32c14f" /> <img width="100" height="110" alt="Captura de pantalla 2026-09-08 215723" src="https://github.com/user-attachments/assets/f84ccc2e-d1df-409c-975c-8cdad189d6d1" /> <img width="100" height="100" alt="Captura de pantalla 2026-09-08 221301" src="https://github.com/user-attachments/assets/094d14bf-f336-4f6a-8094-62a356bdec01" />
+<img width="100" height="140" alt="images (13)" src="https://github.com/user-attachments/assets/8ba5c990-5b09-484d-a685-3fc4fe32c14f" /> <img width="140" height="150" alt="Captura de pantalla 2026-09-08 215723" src="https://github.com/user-attachments/assets/f84ccc2e-d1df-409c-975c-8cdad189d6d1" /> <img width="150" height="150" alt="Captura de pantalla 2026-09-08 221301" src="https://github.com/user-attachments/assets/094d14bf-f336-4f6a-8094-62a356bdec01" />
 
 this is still a HEAVY WIP!!
 
