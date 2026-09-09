@@ -20,6 +20,7 @@ as you can see by the gifs, im a four ---> <img width="100" height="50" alt="for
 <img width="100" height="140" alt="images (13)" src="https://github.com/user-attachments/assets/8ba5c990-5b09-484d-a685-3fc4fe32c14f" /> <img width="140" height="150" alt="Captura de pantalla 2026-09-08 215723" src="https://github.com/user-attachments/assets/f84ccc2e-d1df-409c-975c-8cdad189d6d1" /> <img width="150" height="150" alt="Captura de pantalla 2026-09-08 221301" src="https://github.com/user-attachments/assets/809ff75a-9b2a-4ca9-8486-4c1c800c6253" />
  <img width="160" height="130" alt="KAngelSprite" src="https://github.com/user-attachments/assets/e982574d-8ffa-4ded-b862-8bebd09113fb" />
 
+BFDI SHIPS DNIUCF
 
 this is still a HEAVY WIP!!
 
