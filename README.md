@@ -14,6 +14,7 @@ if i sneeze on you theres a 50/50 chance that i either want to int or your exist
 ifyouintanyway,i'llprobablyjustbemeantoyou.
 
   <img width="300" height="254" alt="sparkle" src="https://github.com/user-attachments/assets/6670608c-9076-44a1-bcf8-119b4695d0c3" />
+
   
 
 as you can see by the gifs, im a four ---> <img width="100" height="50" alt="fortune-cookie-four-bfb" src="https://github.com/user-attachments/assets/a5fd4562-0b70-42bb-b9a1-7c8b9304b2eb" />
