@@ -9,7 +9,7 @@ im an agender (<img width="50" height="30" alt="pride-pride-flag" src="https://g
 
 𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆𓍯⊹₊⟡⋆
 
-#ALWAYS DNIUID/CF/hubby, if i sneeze on you theres a 50/50 chance that i either want to int or your existence just pmo.
+# ALWAYS DNIUID/CF/hubby, if i sneeze on you theres a 50/50 chance that i either want to int or your existence just pmo.
 
   <img width="300" height="254" alt="sparkle" src="https://github.com/user-attachments/assets/6670608c-9076-44a1-bcf8-119b4695d0c3" />
 
