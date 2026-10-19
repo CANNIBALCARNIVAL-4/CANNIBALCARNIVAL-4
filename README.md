@@ -34,9 +34,12 @@ fictkin (but i also kin one btw eyes emoji)
 
 
 <img width="500" height="521" alt="nyaz" src="https://github.com/user-attachments/assets/725bacc5-6687-4020-b5e9-0bcfb51a19c5" />
+
 me btw
 
 
+
+ 
 this is still a HEAVY WIP!!
 
 $\color{red}{\text{[rory says: tutu should perish in agonizing pain.]}}$
