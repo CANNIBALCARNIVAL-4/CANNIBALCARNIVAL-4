@@ -32,6 +32,7 @@ i get very jealous very easily and i become unstable when i feel ignored/replace
 
   <img width="300" height="254" alt="sparkle" src="https://github.com/user-attachments/assets/6670608c-9076-44a1-bcf8-119b4695d0c3" />
 
+# ficts
   
 im a four ---> <img width="100" height="50" alt="fortune-cookie-four-bfb" src="https://github.com/user-attachments/assets/a5fd4562-0b70-42bb-b9a1-7c8b9304b2eb" />
 fictkin (but i also kin one btw 👀👀👀)
@@ -39,12 +40,10 @@ fictkin (but i also kin one btw 👀👀👀)
 
 <img width="500" height="521" alt="nyaz" src="https://github.com/user-attachments/assets/725bacc5-6687-4020-b5e9-0bcfb51a19c5" />
 
-me btw ok
+also me btw maybe ok
 
+# hdjsvwugdjshd
 
-
- 
-this is still a HEAVY WIP!!
 
 $\color{red}{\text{[rory says: tutu should perish in agonizing pain.]}}$
 
