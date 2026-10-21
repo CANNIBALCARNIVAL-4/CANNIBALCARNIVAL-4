@@ -10,7 +10,7 @@ my name is cannibal(carnival) or as the bakery locals call me, fork.
 im an agender (<img width="40" height="30" alt="pride-pride-flag" src="https://github.com/user-attachments/assets/c6d2249f-512f-4ae3-8c84-f2b2cbb3892c" />)
  chilean(<img width="20" height="20" alt="cl" src="https://github.com/user-attachments/assets/9d0ab301-1c42-45ee-b3dc-49f85ff9b75b" /> ) thing, i love bfdi, rainworld, and the isle, but i rarely int with these fandoms (or any fndm in general)
 
- diagnosed with psychosis and autism. (holy nerf)
+ diagnosed with psychosis and autism. (i'm not taking my pills btw lmfao)
 
 
  i'm a fourthree believer, i don't like any other algebralien ship!!
@@ -21,6 +21,10 @@ im an agender (<img width="40" height="30" alt="pride-pride-flag" src="https://g
 # ALWAYS DNIUID/hubby
 if i sneeze on you theres a 50/50 chance that i either want to int or your existence just pmo, i get my courage from being around my husband, so it's rare for me to int with randos when i'm alone.
 ifyouintanyway,i'llprobablyjustbemean/coldtoyou
+
+
+also dni people who tell their unstable friend to have sexwiththem instead of relapsing, and then whines about it on their git when that friend decides to not take their shit anymore :3333333!!!! (targeted towards a very special person! kisses and cuds if ur seeing this! with love, cannibal.)
+
 
 i only have 2 friends, of which both i dont talk to very often; nemo (aka unc/fish) and arpeno (aka scavvo)
 
