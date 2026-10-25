@@ -23,7 +23,7 @@ if i sneeze on you theres a 50/50 chance that i either want to int or your exist
 ifyouintanyway,i'llprobablyjustbemean/coldtoyou
 
 
-also dni people who tell their unstable friend to have sexwiththem instead of relapsing, and then whines about it on their git when that friend decides to not take their shit anymore, AND THEN tries to empathybait people by saying theyre ending thmselves in 15 days :3333333!!!! (targeted towards a very special person! kisses and cuds if ur seeing this, i still hate you but please don't. with love, cannibal.)
+i ate a small man once, he tasted like lies and immaturity.
 
 
 i only have 2 friends (ithink), of which both i dont talk to very often; nemo (aka unc/fish) and arpeno (aka scavvo)
