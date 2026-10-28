@@ -23,9 +23,6 @@ if i sneeze on you theres a 50/50 chance that i either want to int or your exist
 ifyouintanyway,i'llprobablyjustbemean/coldtoyou
 
 
-i ate a small man once, he tasted like lies and immaturity.
-
-
 i only have 2 friends (ithink), of which both i dont talk to very often; nemo (aka unc/fish) and arpeno (aka scavvo)
 
 and of course, i have my husband (rory) too, he's the ONLY ONE who has even TRIED to help me get some of my reason back when i have psycho outbursts!! (TARGETED TOWARDS VARIOUS INDIVIDUALS)
@@ -38,13 +35,25 @@ i get very jealous very easily and i become unstable when i feel ignored/replace
 
 # ficts
   
-im a four ---> <img width="100" height="50" alt="fortune-cookie-four-bfb" src="https://github.com/user-attachments/assets/a5fd4562-0b70-42bb-b9a1-7c8b9304b2eb" />
-fictkin (but i also kin one btw 👀👀👀)
+im a four (from bfb) fictkin mostly---> <img width="100" height="50" alt="fortune-cookie-four-bfb" src="https://github.com/user-attachments/assets/a5fd4562-0b70-42bb-b9a1-7c8b9304b2eb" />
+but i also kin one (from Tpot) and GlaDOS (from portal)
 
 
-<img width="500" height="521" alt="nyaz" src="https://github.com/user-attachments/assets/725bacc5-6687-4020-b5e9-0bcfb51a19c5" />
+"I'm not even angry
+I'm being so sincere right now
+Even though you broke my heart
+And killed me"
 
-also me btw maybe ok
+"Goodbye my only friend
+Oh, did you think I meant you?
+That would be funny
+if it weren't so sad
+Well you have been replaced
+I don't need anyone now
+When I delete you maybe
+[REDACTED]"
+... 
+
 
 # hdjsvwugdjshd
 
