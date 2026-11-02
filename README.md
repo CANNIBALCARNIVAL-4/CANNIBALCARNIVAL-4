@@ -36,23 +36,7 @@ i get very jealous very easily and i become unstable when i feel ignored/replace
 # ficts
   
 im a four (from bfb) fictkin mostly---> <img width="100" height="50" alt="fortune-cookie-four-bfb" src="https://github.com/user-attachments/assets/a5fd4562-0b70-42bb-b9a1-7c8b9304b2eb" />
-but i also kin one (from Tpot) and GlaDOS (from portal)
-
-
-"I'm not even angry
-I'm being so sincere right now
-Even though you broke my heart
-And killed me"
-
-"Goodbye my only friend
-Oh, did you think I meant you?
-That would be funny
-if it weren't so sad
-Well you have been replaced
-I don't need anyone now
-When I delete you maybe
-[REDACTED]"
-... 
+but i also kin one (from Tpot👀👀👀)
 
 
 # hdjsvwugdjshd
